@@ -2,7 +2,7 @@
 
 Nice to have you here
 
-But this is not my availble account and every things move to my ![**main account**](github.com/AmirHSoukhteh) 
+But this is not my availble account and every things move to my [**main account**](github.com/AmirHSoukhteh) 
 
 make sure to contact me there.
 
